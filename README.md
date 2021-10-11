@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ifdruidas
 - 👀 I’m interested in eletronic and education
-- 🌱 I’m currently learning novel, book miscellaneous
+- 🌱 I’m currently learning en electrical engineering, but focused on biomedicine
 - 💞️ I’m looking to collaborate on electronic projects, specifically in the biomedical area
 - 📫 How to reach me Gustavodealmeida13@hotmail.com or Gustavodealmeida17@gmail.com
 
